@@ -1,1 +1,0 @@
-# yukiprac.github.io
